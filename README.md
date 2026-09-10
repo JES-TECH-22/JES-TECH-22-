@@ -1,4 +1,4 @@
-# Hi, I'm Tech 👋
+# Hi, I'm JES-TECH 👋
 
 ### Web Designer & Developer | JES Tech
 
